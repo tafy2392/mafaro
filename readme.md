@@ -1,2 +1,0 @@
-ndiyo jnvsnznsa
-c dfm
